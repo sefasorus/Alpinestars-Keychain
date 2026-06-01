@@ -12,3 +12,4 @@ BOM: No purchases necessary.
 
 Completion:
 Recived it from #printing-legion, super happy with how it came out! It was a but dirty so I clean it up a little and updated the repo and added this jounal! I think I came a long way from when I started, as it feels super high quality and great!
+<img width="3024" height="4032" alt="IMG_0505" src="https://github.com/user-attachments/assets/82c1b1ca-0bc9-42d7-8dec-8a541fb9db76" />
