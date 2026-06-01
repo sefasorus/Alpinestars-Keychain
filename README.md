@@ -9,3 +9,6 @@ I'm a huge fan of Alpinestars and motorsports, and I really wanted to get a keyc
 
 
 BOM: No purchases necessary.
+
+Completion:
+Recived it from #printing-legion, super happy with how it came out! It was a but dirty so I clean it up a little and updated the repo and added this jounal! I think I came a long way from when I started, as it feels super high quality and great!
